@@ -1,0 +1,1 @@
+# UAS_SistemPakar_PemilihanLaptop
